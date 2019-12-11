@@ -1,1 +1,1 @@
-TU PUTA MADRE
+Readme obligatorio para continuar
